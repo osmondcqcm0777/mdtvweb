@@ -1,1 +1,1 @@
-[http://md1.fun](http://md1.fun)
+[http://md2.fun](http://md2.fun)
