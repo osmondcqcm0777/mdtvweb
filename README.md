@@ -1,1 +1,1 @@
-[http://md2.fun](http://md2.fun)
+[http://md007.life](http://md007.life)
